@@ -1,1 +1,1 @@
-# Soluci-n-de-EDOs
+# Solucion-de-EDOs
